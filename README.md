@@ -1,6 +1,6 @@
 # Buy Wholesale Heavy Equipment Crating Shipping near me in Chino | Bluerose Packaging 
 
-Buy wholesale heavy equipment crating &amp; shipping services near Chino. Custom-built crates, export-ready solutions, and local pickup or delivery. Get a quote today!
+Buy wholesale heavy equipment crating , shipping services near Chino. Custom-built crates, export-ready solutions, and local pickup or delivery. Get a quote today!
 
 ---
 
